@@ -1,1 +1,1 @@
-# Capstone1
+My name is Jeff McCuch, im an IST Major
